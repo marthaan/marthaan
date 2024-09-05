@@ -6,7 +6,7 @@ I am from Greenville, NC and was a mathematics major at UNC Chapel Hill.
 
 - 🌱 I’m currently learning: multimedia systems, Sonic Pi, information retrieval, and networks.
 
-- 📫 How to reach me: IG/soundcloud @marthaann27
+- 📫 How to reach me: email marthaan@usc.edu, IG/soundcloud @marthaann27
 
 - 😄 Pronouns: she/her
 
