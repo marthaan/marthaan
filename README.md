@@ -9,7 +9,7 @@ I am from Greenville, NC and was a mathematics major at UNC Chapel Hill.
 
 - 😄 Pronouns: she/her
 
-- ⚡ Fun fact: I played the violin my whole life and have been a DJ for 3+ years! 
+- ⚡ Fun fact: I have played the violin my whole life and have been a DJ for 3+ years! 
 
 <!---
 marthaan/marthaan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
